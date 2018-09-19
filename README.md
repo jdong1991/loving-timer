@@ -5,7 +5,7 @@
 
 浏览器 Google Chrome 首选。
 
-[http://timer.chenjiandongx.com](http://timer.chenjiandongx.com)
+[http://www.jiangdongzml.com/loving-timer/](http://www.jiangdongzml.com/loving-timer/)
 
 ### 📱 移动端
 
